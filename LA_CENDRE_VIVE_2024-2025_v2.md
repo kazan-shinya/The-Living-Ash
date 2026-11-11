@@ -16,7 +16,7 @@ Cette archive ne remplace pas l'édition publiée et ne constitue pas une second
 ## Place dans l'ensemble
 
 - **Œuvre :** *Le Codex du feu vivant*, dans sa forme éditée et publiée.
-- **Archive :** *Le Codex du feu vivant — Legacy*, état antérieur non poli.
+- **Archive :** LA CENDRE VIVE *Le Codex du feu vivant — Legacy*, état antérieur non poli.
 - **Fonction :** conserver la mémoire de la genèse, des détours, des intuitions et des formulations premières.
 
 ---
